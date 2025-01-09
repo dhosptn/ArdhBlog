@@ -6,7 +6,7 @@
 
 ## 🌟 Demo
 
-[🔗 Lihat Demo di GitHub Pages](https://dhosptn.github.io/ardhblog)
+[🔗 Lihat Demo di GitHub Pages](https://dhosptn.github.io/ArdhBlog/)
 
 ---
 
