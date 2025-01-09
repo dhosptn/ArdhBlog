@@ -78,7 +78,7 @@ Kami menerima kontribusi dari siapa pun! Ikuti langkah berikut:
 
 ## 📧 Kontak
 
-Untuk pertanyaan lebih lanjut, hubungi kami di **ahmadridhoseptian388@email.com**.
+Untuk pertanyaan lebih lanjut, hubungi kami di **ahmadridhoseptian388@gmail.com mail.com**.
 
 ---
 
